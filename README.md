@@ -6,8 +6,5 @@
 - 🌺 I'm looking to collaborate on many projects to see all the methodoly development in the world, good luck for me !
 - 📫 How to reach me : manroufmmadi.dev@gmail.com
 
-- <br><br>
-- More about Sayna : https://sayna.io/<br>
-- <br><br>
 
 -->To the pleasure of exchanging and or colaborating together<--
